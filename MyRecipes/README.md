@@ -1,0 +1,1 @@
+This recipe is about how to make white-rice. It will give the ingredients and the steps on how to make rice. The serving size depends on how much rice you put.
